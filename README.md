@@ -1,2 +1,3 @@
 # Ana
-Hola me aburro y no sé q es esto
+
+Quiero un nitro
